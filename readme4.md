@@ -1,0 +1,1 @@
+tu pagal nhi hai bhaiya tumahra dimag kharab hai
